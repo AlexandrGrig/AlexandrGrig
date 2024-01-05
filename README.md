@@ -6,6 +6,6 @@
 - 💻 My goal is to become a good analyst and work remotely
 - ⚒ I am currently working on my pet projects to find my first job as an analyst
 
-[Мем для потенциальных работадателей](https://disk.yandex.ru/i/112rinsCVSfblg)
+![Мем для потенциальных работадателей](https://disk.yandex.ru/i/112rinsCVSfblg)
 
 
